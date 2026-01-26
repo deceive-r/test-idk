@@ -1,13 +1,13 @@
-hii guys, u can call me dani/kat. i go by she/her btw !
+hii guys, u can call me sara/kat. i go by she/her btw !
 
-fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy
+fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy - the freak circus
 
 DNI:
 
 1- 18+ y.o
 
-2- creeps
+2- creeps/p3dos
 
-3- NO sending death/🍇 threats (pls dont)
+3- if you send death/🍇 threats (pls dont)
 
-bye
+ok bye
