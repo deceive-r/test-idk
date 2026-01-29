@@ -1,13 +1,22 @@
-hii guys, u can call me sara/kat. i go by she/her btw !
+![Image](https://github.com/user-attachments/assets/af57ae6a-ea3e-4148-bc2f-328109d7e9ee)
+ 
+   ﹕ ꒰ა sara / kat .ᐟ  ֹ  + 
 
-fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy - the freak circus
+   ᰋ  she X her .ᐟ.ᐟ  minor ^_^ 
+   
 
-DNI:
+𐔌՞. .՞𐦯 - fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy - the freak circus !!
+
+X DNI:
 
 1- 18+ y.o
 
 2- creeps/p3dos
 
-3- if you send death/🍇 threats (pls dont)
+3- if you send death/gggrape threats (pls dont....)
 
-ok bye
+4- proshippers/darkshippers
+
+5- if u make 18+ jokes or jokes that r really inappropiate & brainrots 
+
+take care & have a nice day/night ♡♡♡
