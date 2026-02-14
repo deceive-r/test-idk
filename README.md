@@ -1,11 +1,11 @@
 ![Image](https://github.com/user-attachments/assets/e7de2464-39fd-4b49-beaf-2ffbc051f7be)
  
-   ﹕ ꒰ა sara / kat .ᐟ  ֹ  + 
+   ﹕ sara / kat !
 
    ᰋ  she X her .ᐟ.ᐟ  minor ^_^ 
    
 
-𐔌՞. .՞𐦯 - fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy - the freak circus !!
+- fandoms: dandy's world - crk - genshin impact - animatic battle - dreamgame - forsaken - fnf - i love amy - the freak circus !!
 
 ![Image](https://github.com/user-attachments/assets/a41113e9-50cf-460f-b39b-afd688d99a68)
 
